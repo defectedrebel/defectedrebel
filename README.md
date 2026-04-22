@@ -1,6 +1,6 @@
 
 
-Dni : Proshippers,MAP,below 14 or over 25 y.o,wierd yumeshippers,extremely problematic people.
+Dni : Proshippers,Dandy's World and SMG4 fandom,problematic artist supports etc,MAP,below 14 or over 25 y.o,wierd or unsharing yumeshippers,extremely problematic people .
 
 Int : Anyone unless in my dni list.
 
@@ -29,9 +29,9 @@ If I ignore you (if not afk) I probably don't want to int or I'm with freinds .
 
 Don't make sex-al jokes at me unless a close freind 
 
-Death jokes or death threats esp to my freinds results in perm block .
+Death jokes,disrespectful behavior or death threats esp to my freinds results in perm block .
 
-
+,
 
 • Might add more here later
 
