@@ -2,7 +2,6 @@
 
 Dni : Proshippers, Dandy's World and SMG4 fandom, problematic artist supports etc, MAP, below 14 or over 25 y.o, wierd or unsharing yumeshippers, extremely problematic people .
 
-Int : Anyone unless in my dni list.
 
 ,
 
