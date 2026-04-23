@@ -22,7 +22,7 @@ Dandy's World , and Evade
 
 ,
 
-If I seem distant it dosen't mean I'm mad I'm just bad at approaching so approaching me first would be great .
+If I seem distant it dosen't mean I'm mad or upset,etc I'm just bad at approaching so approaching me first would be great .
 
 If I ignore you (if not afk) I probably don't want to int or I'm with freinds .
 
