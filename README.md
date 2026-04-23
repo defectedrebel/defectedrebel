@@ -26,8 +26,6 @@ If I seem distant it dosen't mean I'm mad I'm just bad at approaching so approac
 
 If I ignore you (if not afk) I probably don't want to int or I'm with freinds .
 
-Don't make sex-al jokes at me unless a close freind even then do it cautiously . 
-
 Death jokes,disrespectful behavior or death threats results in perm block .
 
 ,
