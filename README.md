@@ -26,7 +26,7 @@ If I seem distant it dosen't mean I'm mad or upset,etc I'm just bad at approachi
 
 If I ignore you (if not afk) I probably don't want to int or I'm with freinds .
 
-Death jokes,disrespectful behavior or death threats results in perm block .
+Death jokes,disrespectful behavior (esp if it's abt smth serious) or death threats results in perm block .
 
 ,
 
