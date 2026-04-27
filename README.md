@@ -7,6 +7,7 @@ Dni : Proshippers, problematic artist supports etc, MAP, below 14 or over 25 y.o
 
 Pronouns : She/Her .
 
+,
 
 < Fandoms >
 
@@ -16,9 +17,9 @@ Wings of Fire , Bad Things
 
 Let Him Go , Forsaken
 
-DeivyDoesTurtorials33 , ^_^ ,
+DeivyDoesTurtorials33 , ^_^ 
 
-Dandy's World , and Evade
+, and Evade
 
 
 
