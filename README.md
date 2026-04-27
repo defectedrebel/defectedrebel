@@ -20,17 +20,7 @@ DeivyDoesTurtorials33 , ^_^ ,
 
 Dandy's World , and Evade
 
-,
 
-If I seem distant it dosen't mean I'm mad or upset,etc I'm just bad at approaching so approaching me first would be great .
-
-If I ignore you (if not afk) I probably don't want to int or I'm with freinds .
-
-Death jokes,disrespectful behavior (esp if it's abt smth serious) or death threats results in perm block .
-
-,
-
-• Might add more here later
 
 
 
