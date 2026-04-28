@@ -1,6 +1,6 @@
 c+h enc !
 
-I follow people I think are cool/want to be freinds with or are freinds 
+I follow people I think are cool or nice cosplays/want to be freinds with or are freinds 
 
 ,
 
