@@ -1,6 +1,7 @@
 c+h enc !
 
-I follow people I think are cool or nice cosplays/want to be freinds with or are freinds , if someone is weird I'm following then tell me .
+I follow people I think are cool or nice cosplays/want to be freinds with or are freinds , 
+if someone is weird that I'm following then tell me .
 
 ,
 
