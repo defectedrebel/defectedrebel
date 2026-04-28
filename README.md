@@ -1,4 +1,8 @@
-c+h enc !
+~ Bobo/Shedletsky fictionkin ~
+
+c+h enc ! ^_^
+
+,
 
 I follow people I think are cool or nice cosplays/want to be freinds with or are freinds , 
 
