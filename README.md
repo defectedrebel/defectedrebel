@@ -1,5 +1,7 @@
 c+h enc !
 
+I follow people I think are cool/want to be freinds with or are freinds 
+
 ,
 
 - DNI: Proshippers , MAP , problematic people , below 14 or over 25 .
